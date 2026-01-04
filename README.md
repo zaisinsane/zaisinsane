@@ -1,4 +1,8 @@
+![stonathan](https://github.com/user-attachments/assets/187d7df7-6fe5-47f0-a531-bbb082147297)
+
+
 __zai !!__
+
 
 ㅤㅤㅤㅤㅤ16 ' ᝰ.ᐟ
 
