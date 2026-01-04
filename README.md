@@ -1,6 +1,5 @@
 
-https://github.com/user-attachments/assets/a0f01747-da25-42ff-a0c4-8aa6a0b424e1
-Uploading stonathan-steve-harrington.mp4…
+![Charlie Heaton](https://github.com/user-attachments/assets/849d3887-94ae-4306-b446-222f5dd9f452)
 
 
 __zai !!__
